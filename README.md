@@ -1,4 +1,4 @@
-# 🤯 Sobre mim:
+# 😎 Sobre mim:
 MEU PORTFÓLIO<br><br>Meu nome é Vitor Mainchein Morales e tenho 16 anos ...<br>Nasci e morei durante muito tempo em uma cidade do interior de Mato Grosso do Sul chamada Bonito.
 Ano passado me mudei para Floripa e acabei entrando na escola S<br>Começei a praticar esportes que nunca pensei que iria fazer como academia e basquete. Adoro praticar esses esportes no meu cotidiano.
 
